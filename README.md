@@ -1,4 +1,4 @@
-# 👋 Hey there, I'm Tobías!
+# 👋 Hey there, I'm Tobias!
 ---
 
 ## ⚡ What I'm up to
